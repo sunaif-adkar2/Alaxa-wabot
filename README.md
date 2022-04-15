@@ -6,6 +6,9 @@
     <img src="http://ForTheBadge.com/images/badges/made-with-ruby.svg">
 <p>
 
+#######♥️LOVE
+    >PYTHON 
+
 #### HELP👩‍💻
 
 
