@@ -24,6 +24,8 @@
 ```✤🅵🅾🆁 🅼🅾🆁🅴 🅷🅴🅻🅿 🅹🅾🅸🅽 🆃🅶/🆆🅰 🅶🆁🅾🆄🅿🆂✤```
 ## Deploy
 
+# [IT WILL DIRECTLY ENTER WHATSAPP FOR AUTO DEPLOY]()
+
 
 #### SERVER
 
