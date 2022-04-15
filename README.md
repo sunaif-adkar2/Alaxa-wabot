@@ -23,8 +23,7 @@
 
 ```✤🅵🅾🆁 🅼🅾🆁🅴 🅷🅴🅻🅿 🅹🅾🅸🅽 🆃🅶/🆆🅰 🅶🆁🅾🆄🅿🆂✤```
 ## Deploy
-
-# [IT WILL DIRECTLY ENTER WHATSAPP FOR AUTO DEPLOY](https://wa.me/message/OMX2XSRLEE3VF1)
+[IT WILL DIRECTLY ENTER WHATSAPP FOR AUTO DEPLOY](https://wa.me/message/OMX2XSRLEE3VF1)
 
 
 #### SERVER
